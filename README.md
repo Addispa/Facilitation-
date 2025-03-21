@@ -1,1 +1,2 @@
 seminar prep
+Tell stories.
